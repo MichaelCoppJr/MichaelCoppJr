@@ -1,7 +1,7 @@
 - 👋 Hello, I’m @Michael A. Copp Jr
 - 👀 I’m interested in automotive, information technology, and busniess.
 - 🌱 I’m currently learning computer science @ NSCC.
-- 💞️ I’m looking to collaborate on ... N/A
+- 🫲 I’m looking to collaborate on ... N/A
 - 📫 How to reach me ... VIA Discord @ Redaxted#9830
 
 <!---
